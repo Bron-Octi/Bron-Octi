@@ -1,4 +1,4 @@
-![image](https://www.image2url.com/r2/default/images/1790146715924-6c6e50f6-f163-4487-9aa0-eb2e678db324.png)
+ll![image](https://www.image2url.com/r2/default/images/1790146715924-6c6e50f6-f163-4487-9aa0-eb2e678db324.png)
 
 ⁠৻ **ᴹʸ ᵐᵃⁱⁿ ᵃᶜᶜ ꜝꜝ** → [ᴹⁱᶻᵘᵏⁱ // ᴺⁱⁱᵍᵒ ᵈᵉᵈⁱᶜᵃᵗᵉᵈ ᵐᵃⁱⁿ ᵃᶜᶜ](https://github.com/meopmaioi)
 
@@ -19,4 +19,4 @@ ____________________________
 </details>
 
 
-![image](https://www.image2url.com/r2/default/images/1790147848212-a784138f-e9af-4868-a761-8e9bec6d8897.png)
+![image](https://www.image2url.com/r2/default/images/1790150958433-f36d2077-018b-4356-84bb-da164b6bfe28.png)
